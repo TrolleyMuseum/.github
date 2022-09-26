@@ -2,4 +2,4 @@
 
 * Projects and Websites.
 * Contributions Welcome.
-* [Visit the Museum in Kennebunk Maine](https://trolleymuseum.org/)
+* [Visit the **Trolley Museum** in Kennebunk Maine](https://trolleymuseum.org/)
