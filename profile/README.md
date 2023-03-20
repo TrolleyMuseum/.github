@@ -1,4 +1,4 @@
-# New England Electric Railway Historical Society
+# Seashore Trolley Museum
 
 * Projects and Websites.
 * Contributions Welcome.
